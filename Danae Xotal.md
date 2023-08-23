@@ -1,0 +1,1 @@
+Szczupła brunetka, właścicielka i barmanka Szczęśliwego Kłamcy, mimo nadwyraz przyjaznych stosunków ze Zgrozą odrzuca ich zaloty.

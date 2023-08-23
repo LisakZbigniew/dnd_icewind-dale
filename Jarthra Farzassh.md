@@ -1,0 +1,1 @@
+Krasnolud z fortecy rodu Battlehammer, tutejszy przewodnik na zatrudnieniu u Athenasa.

@@ -1,0 +1,1 @@
+Półelf handlarz, właściciel Emporium jego imienia, jest w stanie uzyskać i sprzedać pospolite przedmioty magiczne w cenie 100 sztuk złota za przedmiot i pospolite mikstury za 50 sztuk złota (uczciwa cena za tego typu dobra), prawdopodobnie jest w stanie skupować też kosztowności na jakie natraficie w swoich podróżach jeśli nie znajdziecie innych kupców.

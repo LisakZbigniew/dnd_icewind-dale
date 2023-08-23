@@ -1,0 +1,1 @@
+Hruna, Korux, Storn, ~~Oobok~~ - grupa krasnoludów z twierdzy klanu Battlehammer w dolinie u stóp Kelvin Cairn. Zostali wysłani do Bryn Shander, aby wymienić żelazo na zaopatrzenie i prowiant. Polujący yeti przeszkodził im w dokończeniu misji.

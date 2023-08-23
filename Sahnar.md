@@ -1,0 +1,1 @@
+Aka Staszek, księżycowy elf zmumifikowany w poprzedniej erze, wyszedł rozprostować kości.

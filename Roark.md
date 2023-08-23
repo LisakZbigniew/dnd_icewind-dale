@@ -1,0 +1,1 @@
+Człowiek, właściciel karczmy na zboczu wzniesienia na którym znajduje się twierdza Dineval.

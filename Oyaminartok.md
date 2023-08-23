@@ -1,0 +1,1 @@
+ Potężna wojowniczka goliatów, która według plotek ma swoją siedzibę na szczycie Kopca Kelvina, z Targos wyruszyła ekspedycja mająca na celu doprowadzić jednego ze śmiałków, aby stoczył z nią pojedynek.

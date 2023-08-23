@@ -1,0 +1,1 @@
+Córka właściciela Wschodniej Strony w Termalaine, obsługuje klientów wyręczając w tym starszych rodziców. W przeciwieństwie do większości ludzi w dziesięciu miastach nie odczuwa bezpośrednich efektów zimna.

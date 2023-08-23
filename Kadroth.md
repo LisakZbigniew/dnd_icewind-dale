@@ -1,0 +1,1 @@
+† † † † - przywódca czarnych mieczy, zabity przez milicję po wyswobodzeniu mówcy Caer-Dineval.

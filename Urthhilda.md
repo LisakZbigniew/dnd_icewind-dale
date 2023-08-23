@@ -1,0 +1,1 @@
+Schwytana przez Heksery duergarka, która zniknęła wkrótce po ataku zabójcy.

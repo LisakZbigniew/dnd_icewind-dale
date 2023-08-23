@@ -1,0 +1,3 @@
+pochodzenie: krasnolud zawód: szklarz data zgonu: 2 Hammer 1489 DR miejsce zgonu: Termalaine przyczyna zgonu: zatrzymanie akcji serca/ zamrożone rany kłute
+
+Szklarz z Bryn Shander, uciekał do rodziny przez Termalaine z powodów polityki miasta (jak podał Vernon), gdzie dnia 2 Hammer tego roku spotkał go przykry koniec. W kieszeniach w momencie śmierci miał przy sobie glejt cechu szklarzy, podarte obywatelstwo Bryn Shander i list/notatkę 'Sprawa została załatwiona - S.'. Na ciele znaleźliście trzy rany kłute które zostały po miesiącu od śmierci nadal emanują ewokacją i trzy rany zadane pośmiertnie.

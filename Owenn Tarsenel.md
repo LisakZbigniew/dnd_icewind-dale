@@ -1,0 +1,1 @@
+Apatyczny właściciel Luskańskiej Zbrojowni. Mówcę Naerth'a najczęściej można znaleźć w jego przybytku.

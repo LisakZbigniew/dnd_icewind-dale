@@ -1,0 +1,1 @@
+Wieszczka przez którą miasta składają comiesięczną ofiarę

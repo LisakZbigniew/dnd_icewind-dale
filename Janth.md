@@ -1,0 +1,1 @@
+Oportunistyczny duch badacza fauny i flory Icewind Dale. Kto wie gdzie się teraz ukrywa?

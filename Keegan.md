@@ -1,0 +1,1 @@
+ Mąż Garreta, mieszka w Targos, trudni się rękodziełem.

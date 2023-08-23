@@ -1,0 +1,1 @@
+Druidka z plemienia wilka która poprzysięgła zemstę na dziesięciu miastach Icewind Dale za śmierć jej siostry

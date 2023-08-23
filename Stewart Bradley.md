@@ -1,0 +1,1 @@
+pochodzenie: człowiek zawód: szkutnik data zgonu: 4 Nightal 1488 DR miejsce zgonu: Targos przyczyna zgonu: zamrożone rany kłute

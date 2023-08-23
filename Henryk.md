@@ -1,0 +1,1 @@
+ Starszy rangą (jeszcze, ale nie na długo) zbir Zhentarimów.

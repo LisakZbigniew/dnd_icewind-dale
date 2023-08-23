@@ -1,0 +1,1 @@
+Pół-elf, pół-karczmarz(!) w "Hook, Line and Sinker" w rozdaje darmowe pół pinty krasnoludzkiego piwa dla każdego nowego patrona.

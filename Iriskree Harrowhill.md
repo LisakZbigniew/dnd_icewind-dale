@@ -1,0 +1,1 @@
+Właścicielka i sprzedawczyni Szczęśliwego Scrimshandera, starsza kobieta z bladą cerą, przy kości.

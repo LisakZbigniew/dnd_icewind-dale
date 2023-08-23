@@ -1,0 +1,1 @@
+Stara nazwa karczmy DeGrootz'a, który został znaleziony martwy zwisając ze sznura uwiązanego na jej stropie. Została wam oddana w ramach zapłaty za zabicie białego łosia.

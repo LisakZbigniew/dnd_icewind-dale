@@ -1,0 +1,1 @@
+†††† - duergarski książe, został mu przydzielony posterunek niedaleko Caer-Konig z którego miał zaatakować klan Battlehamer po rozpoczęciu wojny z powierzchnią Icewind Dale.

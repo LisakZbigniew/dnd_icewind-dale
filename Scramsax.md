@@ -1,0 +1,1 @@
+Starszy właściciel karczmy Northlook w Bryn Shander. Jego karczma słynie z zaklętego trofeum ryby i jest miejscem w którym najczęściej zatrzymują się najemnicy.

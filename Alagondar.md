@@ -1,0 +1,1 @@
+Poprzedni ród Neverwinter. Obecnie miastem włada Lord Dagult Neverember.

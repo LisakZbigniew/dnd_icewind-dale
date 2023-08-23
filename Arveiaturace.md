@@ -1,0 +1,1 @@
+Nazywana Białym Żmijem, legendarny starożytny biały smok, zmora (nie kot) wszystkich mieszkańców Icewind Dale.

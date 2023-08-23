@@ -1,0 +1,1 @@
+(gnom. dom) forteca goblinów znajdująca się gdzieś u zboczy Grzbietu Świata. Przywódca goblinów wysyła parowe maszyny w Icewind Dale z załogami szabrowników

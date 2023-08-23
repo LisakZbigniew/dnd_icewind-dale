@@ -1,0 +1,1 @@
+Półork i mówca Termalaine, obecnie walczący o szacunek i władzę we własnym mieście. Jest do was wrogo nastawiony po "negocjacjach".

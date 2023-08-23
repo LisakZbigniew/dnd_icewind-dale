@@ -1,0 +1,1 @@
+Kapitan straży Targos i prawa ręka mówcy.

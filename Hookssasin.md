@@ -1,0 +1,1 @@
+Wynajęta zabójczyni, kobieta w średnim wieku, z ogoloną głową i hakiem zamiast prawej ręki.

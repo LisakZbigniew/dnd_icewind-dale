@@ -1,0 +1,1 @@
+ Mówca Targos, człowiek Luskańskiego pochodzenia i prawdopodobnie głowa Zhentarimów w tym rejonie Zapomnianych Krain. Jego przedsięwzięcie ochrony vipów przed poświęceniem dla Auril przeminie z północnym wiatrem, jeśli morderstwa dalej będą nękały klientelę.

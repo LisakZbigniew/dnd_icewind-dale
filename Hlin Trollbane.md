@@ -1,0 +1,1 @@
+Była poszukiwaczka przygód, krasnolud, która obecnie zajmuje się "gryzieniem numerków". Wykryła obecność seryjnego mordercy korzystającego z lodowej magii, zaoferowała nagrodę za zajęcie się zabójcą.

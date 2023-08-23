@@ -1,0 +1,1 @@
+Starsza obywatelka Targos której domostwo jest nawiedzane przez niecne małe stworzonka.

@@ -1,0 +1,1 @@
+Allie i Cori Shorard - siostry, właścicielki Północnego Światła w Caer-Konig. Słynna latarnia z karczmy została ukradziona i właścicielki zmusiły Yolona do aktywnego poszukiwania sprawców pod groźbą utraty dostępu do "wodopoju".

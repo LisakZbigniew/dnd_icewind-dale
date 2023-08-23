@@ -1,0 +1,1 @@
+ Starzejący sie przewodnik na emeryturze, obecnie prowadzi sklep z ekwipunkiem (sprzęt do wspinaczki, raki, rakiety, sanie zaprzęgowe, psy zaprzęgowe).

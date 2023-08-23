@@ -1,0 +1,1 @@
+Ulubiony pies zaprzęgowy Garreta i Keegana. Dołączył do was na drodze z Termalaine do Targos.

@@ -1,0 +1,1 @@
+Watażka duergarów, ojciec Nildara i Durtha, inżynier zniszczenia Icewind Dale, buduje mechanicznego smoka z Chardalynu.

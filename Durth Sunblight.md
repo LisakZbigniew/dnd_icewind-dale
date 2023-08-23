@@ -1,0 +1,1 @@
+Kolejny z duergarskich książąt, przebywa na opuszczonym promie w Easthaven.

@@ -1,0 +1,1 @@
+pochodzenie: niziołek zawód: - data zgonu: 10 Uktar 1488 DR miejsce zgonu: Good Mead przyczyna zgonu: zatrzymanie akcji serca/ zamrożone rany kłute

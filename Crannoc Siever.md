@@ -1,0 +1,1 @@
+Mówca Caer-Dineval, oficjalnie z powodu podupadnięcia na zdrowiu w ostatnich miesiącach rzadko występuje publicznie.

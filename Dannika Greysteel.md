@@ -1,0 +1,1 @@
+Półelfia badaczka zjawisk ponadnaturalnych w Icewind Dale. Zaoferowała wam 25 złotych w zamian za znalezienie i doprowadzenie do niej małych żywiołaków zwanych Chwinga, dodatkowo oferuje przedmiot magiczny mający wam pomóc w zadaniu. Nikt z was jeszcze nie przyjął oferty.
